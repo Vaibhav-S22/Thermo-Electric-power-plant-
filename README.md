@@ -1,0 +1,1 @@
+The Waste to Electricity project is an innovative approach focused on transforming municipal solid waste into usable electrical energy, thereby addressing two major urban challenges — waste management and energy scarcity
